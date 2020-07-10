@@ -1,2 +1,2 @@
-### Ex
-# xx10500117
+### Thitikorn Sukjai :grinning:
+# 16132034 :slightly_smiling_face:
