@@ -1,6 +1,4 @@
 Hello! VScode
 My name is Thitikorn Sukjai
 I from Thailand
-a1
-a2
-a3
+ARU
